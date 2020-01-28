@@ -5,3 +5,4 @@ I have learned that I know even less than I thought and have learned that this w
 https://9gag.com/
 C:\Users\slimc\Desktop\Intro to web design\Assignment-02\Responses.txt
 C:\Users\slimc\Desktop\Intro to web design\Assignment-02\Images\Screen shot.png
+Please help. I have no idea what im doing......
